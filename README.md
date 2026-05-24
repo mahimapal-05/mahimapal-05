@@ -12,3 +12,11 @@
 ![](https://streak-stats.demolab.com/?user=mahimapal-05&theme=dark&hide_border=false)<br/>
 ![](https://github-readme-stats.shion.dev/api/top-langs/?username=mahimapal-05&theme=dark&hide_border=false&include_all_commits=true&count_private=true&layout=compact)
 
+
+## 🕉️ 
+
+> “विद्या धनं सर्वधनप्रधानम्”
+> “या देवी सर्वभूतेषु बुद्धिरूपेण संस्थिता।
+> नमस्तस्यै नमस्तस्यै नमस्तस्यै नमो नमः॥”
+> Knowledge is the greatest wealth of all.
+> Salutations to the Goddess who resides in all beings in the form of intellect and wisdom.
