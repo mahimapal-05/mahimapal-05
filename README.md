@@ -15,8 +15,8 @@
 
 ## 🕉️ 
 
-> “विद्या धनं सर्वधनप्रधानम्”
-> “या देवी सर्वभूतेषु बुद्धिरूपेण संस्थिता।
-> नमस्तस्यै नमस्तस्यै नमस्तस्यै नमो नमः॥”
-> Knowledge is the greatest wealth of all.
+> “विद्या धनं सर्वधनप्रधानम्”<br>
+> “या देवी सर्वभूतेषु बुद्धिरूपेण संस्थिता।<br>
+> नमस्तस्यै नमस्तस्यै नमस्तस्यै नमो नमः॥”<br>
+> Knowledge is the greatest wealth of all.<br>
 > Salutations to the Goddess who resides in all beings in the form of intellect and wisdom.
